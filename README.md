@@ -1,5 +1,5 @@
 ![](https://file.garden/Zu45dkPYuzlvwhxX/tenor%20(11).gif) [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Bold&weight=100&size=10&pause=100&color=000000&background=FFFFFF&center=true&multiline=true&width=500&height=84&lines=You+couldn%E2%80%99t+stand+the+loneliness.+That%E2%80%99s+why+you+came+to+Japan.;But+that%E2%80%99s+not+a+bad+thing.+You+rolled+the+dice+and+lost.;It+was+a+stroke+of+bad+luck%2C+and+you+rolled+a+one.+But+the+pips+came+out;different+when+I+rolled.+I+was+blessed+with+wonderful+friends.+That%E2%80%99s+all.;I+could+have+been+in+your+situation%2C+and++you+could+have+been+in+mine.)](https://git.io/typing-svg)
 
 
-![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square&color=000000&label=PORT+MAFIA+AFFILIATES&align="center")
+![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square&color=000000&label=PORT+MAFIA+AFFILIATES&base=FFFFFF)
 
